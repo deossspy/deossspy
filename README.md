@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @deossspy
-- 👀 I’m interested in gayw p0rn0
-- 🌱 I’m currently learning HTML
+yeoooooo
